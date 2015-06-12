@@ -1,2 +1,0 @@
-# myrzenochek.github.io
-Portfolio
